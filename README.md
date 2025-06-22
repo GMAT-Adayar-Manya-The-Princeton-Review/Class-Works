@@ -1,4 +1,4 @@
-# Class-Works
+# Class Works
 🎯GMAT Focus 
 
 Free Mock tests:
