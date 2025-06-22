@@ -1,3 +1,12 @@
+Please don't access the q3-22-06-2025.pdf on read view, github has some problems assosciated with it to view it as a read only file, please download the pdf directly & access it locally..😊
+Happy Learning
+
+
+Class Board Writings: 
+-
+
+
+
 ![WhatsApp Image 2025-06-22 at 20 46 18_92fcbd8f](https://github.com/user-attachments/assets/8528c304-702f-40e8-beac-e074a575042c)
 
 ![WhatsApp Image 2025-06-22 at 20 46 19_265b2b3c](https://github.com/user-attachments/assets/79d98e36-52c6-430b-8a9b-5405bdea7174)
