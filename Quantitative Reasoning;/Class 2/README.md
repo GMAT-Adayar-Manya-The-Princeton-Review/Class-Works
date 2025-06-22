@@ -1,3 +1,13 @@
+Please don't access the [pdf-m2-21-06-2025.pdf](pdf/) on read view, github has some problems assosciated with it to view it as a read only file, please download the pdf directly & access it locally..😊
+Happy Learning
+
+<br/>
+
+<br/>
+
+Class Board Writings:
+-
+
 ![WhatsApp Image 2025-06-22 at 20 29 42_0d935958](https://github.com/user-attachments/assets/776583ce-395f-40be-a520-3f54e3e7a357)
 
 ![WhatsApp Image 2025-06-22 at 20 29 42_c4f54629](https://github.com/user-attachments/assets/15ba6a2c-8aee-463f-b7e1-b58123ef6b54)
