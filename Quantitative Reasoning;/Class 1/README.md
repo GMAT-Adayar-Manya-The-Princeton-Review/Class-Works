@@ -1,4 +1,4 @@
-Please don't access the [q1-15-06-2025.pdf](q1-15-06-2025.pdf?raw=true) on read view, github has some problems assosciated with it to view it as a read only file, please download the pdf directly & access it locally..😊
+Please don't access the q1-15-06-2025.pdf on read view, github has some problems assosciated with it to view it as a read only file, please download the pdf directly & access it locally..😊
 Happy Learning
 
 
